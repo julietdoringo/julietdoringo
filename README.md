@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @julietdoringo
-- 👀 I’m interested in making designs in the best of my knowledge
-- 🌱 I’m currently learning how to make aesthetic designs
+- 👀 I’m interested in    
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
